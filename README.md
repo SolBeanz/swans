@@ -7,3 +7,7 @@ Zeus is killing baby Swans in Lake Eola. Let's do something about it!
 Join the movement on Telegram:
 
 - https://t.me/BeanzTalk 
+
+Twitter Spaces discussion:
+
+- https://twitter.com/i/spaces/1RDxlgNVWbEJL
